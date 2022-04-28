@@ -1,2 +1,5 @@
 # totaal-blockade-van-nederland
+
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
+
 2002-2022 voor geboren en getogen nederlanders
